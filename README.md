@@ -62,6 +62,7 @@ The pizza sales analysis reveals key customer behaviors and business performance
 
 📬 Contact Me
 📧 aishaishaq335@gmail.com
+
 💼 [LinkedIn]www.linkedin.com/in/aisha-ishaq-e
 
 
